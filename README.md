@@ -17,3 +17,5 @@ Phillip Gomes Câmara - 321127398
 Elerson Silva Evangelista - 321113627
 Francy Brandão Miranda - 
 Lucas 
+
+Cronograma
